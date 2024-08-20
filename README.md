@@ -27,19 +27,7 @@ As a beginner developer, I'm eager  to turn ideas into coding and build solution
 </div>
 
 <br clear="both">
-<h2 align="center">📖  الرقية الشرعية | الشيخ مشاري راشد العفاسي || Mishary Alafasy Ruqiah </h2>
 
-
-
-
-
-https://github.com/user-attachments/assets/555dfac1-c02d-45bd-846f-c50b10a413e5
-
-
-
-
-
-<br clear="both">
 
 
 <br clear="both">
